@@ -1,1 +1,1 @@
-# subdomain
+# salam olsun yaxçılara
